@@ -7,15 +7,22 @@ permalink: /about/
 
 # ภาคเหนือ
 
-1.ดอกพวงแสด ดอกไม้ประจำจังหวัดเชียงราย ความหมายคือ
+1.ดอกพวงแสด ดอกไม้ประจำจังหวัดเชียงราย
 
 ![fawer1](https://baansuan.files.wordpress.com/2008/02/puangsaed08.jpg?w=480&h=360)
 
+2.ดอกเสี้ยวดอกขาว ดอกไม้ประจำจังหวัดน่าน
 
-### More Information
+![fawer2](https://www.pstip.com/images/article-pstip/Health/herb/herb-040758-1.jpg)
 
-A place to include any other types of information that you'd like to include about yourself.
+3.ดอกสารภี ดอกไม้ประจำจังหวัดพะเยา
 
-### Contact me
+![fawer3](http://image.dek-d.com/27/0311/3677/117848938)
+
+
+
+
+
+
 
 [email@domain.com](mailto:email@domain.com)
