@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Siriyupa
+title: ดอกไม้ประจำ 77 จังหวัด ในประเทศไทย
 permalink: /about/
 ---
 
