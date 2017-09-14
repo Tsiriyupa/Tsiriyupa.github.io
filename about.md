@@ -3,8 +3,12 @@ layout: page
 title: ดอกไม้ประจำ 77 จังหวัด ในประเทศไทย
 permalink: /about/
 ---
+ข้อมูลดอกไม้ประจำจังหวัด โดยเรียงตามภูมิภาค
 
-55555
+#ภาคเหนือ
+1.ดอกพวงแสด ดอกไม้ประจำจังหวัดเชียงราย ความหมายคือ
+![fawer1](https://baansuan.files.wordpress.com/2008/02/puangsaed08.jpg?w=480&h=360)
+
 
 ### More Information
 
