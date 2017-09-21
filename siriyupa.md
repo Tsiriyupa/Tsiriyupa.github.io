@@ -40,6 +40,7 @@ Ubon Ratchathani Rajabhat University
 -	Control, facilitate and coordinate.
 -	Collect activity budget
 -	Offer ideas,activities
+
 Daifuku Ubon, Restaurant
 April-September 2017
 -	Customer Service Jobs
