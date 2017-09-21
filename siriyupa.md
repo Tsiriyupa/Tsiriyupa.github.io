@@ -31,13 +31,14 @@ Interest and Activities: play game, read a book
  2007-2009
  Loengnoktha high School.
    
-    2010-2012
-  Loengnoktha junior high School.
+ 2010-2012
+ Loengnoktha junior high School.
 
 
 # Experience
+
  # Students Club 2016
- # 2016-2017
+  2016-2017
 -	Represent the faculty in carrying out activities.
 -	Control, facilitate and coordinate.
 -	Collect activity budget
