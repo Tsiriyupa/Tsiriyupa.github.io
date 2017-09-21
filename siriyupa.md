@@ -34,15 +34,15 @@ Ubon Ratchathani Rajabhat University
             Loengnoktha junior high School.
 
 # Experience
- Students Club 2016
- 2016-2017
+ ## Students Club 2016
+ ### 2016-2017
 -	Represent the faculty in carrying out activities.
 -	Control, facilitate and coordinate.
 -	Collect activity budget
 -	Offer ideas,activities
 
-Daifuku Ubon, Restaurant
-April-September 2017
+## Daifuku Ubon, Restaurant
+### April-September 2017
 -	Customer Service Jobs
 -	Part-time
 
