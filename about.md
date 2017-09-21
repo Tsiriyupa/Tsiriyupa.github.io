@@ -33,9 +33,7 @@ permalink: /about/
 
 ![fawer6](http://www.qsbg.org/database/Botanic_Book%20full%20option/Picture/jackth/y_61_opt.jpeg)
 
-7.ดอกธรรมรักษา ดอกไม้ประจำจังหวัดลำปาง
 
-![fawer6]()
 
 
 
