@@ -44,7 +44,7 @@ Interest and Activities: play game, read a book
 -	Offer ideas,activities
 
 # Daifuku Ubon, Restaurant
-# April-September 2017
+  April-September 2017
 -	Customer Service Jobs
 -	Part-time
 
