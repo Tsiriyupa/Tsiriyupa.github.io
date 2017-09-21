@@ -24,15 +24,15 @@ Interest and Activities: play game, read a book
 •	Java – Basic
 
 # Education
-# 2014-2017 
+ 2014-2017 
 # Ubon Ratchathani Rajabhat University
    Faculty of Computer Science
    Computer Science
    
-   # 2007-2009
+   2007-2009
    # Loengnoktha high School.
    
-   # 2010-2012
+    2010-2012
    # Loengnoktha junior high School.
 
 
