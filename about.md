@@ -21,7 +21,9 @@ permalink: /about/
 
 4.ดอกทองกวาว ดอกไม้ประจำจังหวัดเชียงใหม่
 
-![fawer4](http://www.thaischool1.in.th/_files_school/30113659/data/30113659_0_20150519-112532.jpg)
+![fawer4](http://4.bp.blogspot.com/-b3X7M9tmd7w/ThhHm2RIgKI/AAAAAAAABCo/qYdaRTKkAYA/s400/47)
+
+
 
 
 
