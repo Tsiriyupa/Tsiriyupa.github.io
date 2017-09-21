@@ -24,6 +24,22 @@ permalink: /about/
 ![fawer4](http://4.bp.blogspot.com/-b3X7M9tmd7w/ThhHm2RIgKI/AAAAAAAABCo/qYdaRTKkAYA/s400/47)
 
 
+5.ดอกบัวตอง ดอกไม้ประจำจังหวัดแม่ฮ่องสอน
+
+![fawer5](http://oknation.nationtv.tv/blog/home/blog_data/20/36020/images/buatong.jpg)
+
+
+6.ดอกยมหิน ดอกไม้ประจำจังหวัดแพร่
+
+![fawer6](http://www.qsbg.org/database/Botanic_Book%20full%20option/Picture/jackth/y_61_opt.jpeg)
+
+7.ดอกธรรมรักษา ดอกไม้ประจำจังหวัดลำปาง
+
+![fawer6]()
+
+
+
+
 
 
 
