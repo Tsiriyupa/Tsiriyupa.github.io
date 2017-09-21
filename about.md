@@ -19,6 +19,11 @@ permalink: /about/
 
 ![fawer3](http://image.dek-d.com/27/0311/3677/117848938)
 
+4.ดอกทองกวาว ดอกไม้ประจำจังหวัดเชียงใหม่
+
+![fawer4](http://www.thaischool1.in.th/_files_school/30113659/data/30113659_0_20150519-112532.jpg)
+
+
 
 
 
